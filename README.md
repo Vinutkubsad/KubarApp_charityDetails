@@ -1,0 +1,1 @@
+# KubarApp_charityDetails
